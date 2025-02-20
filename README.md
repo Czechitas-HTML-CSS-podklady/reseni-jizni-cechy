@@ -1,0 +1,1 @@
+# reseni-jizni-cechy
